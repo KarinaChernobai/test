@@ -1,2 +1,2 @@
 Hello from Aleck
-Edited by Aleck
+chatgpt.aleck@gmail.com
